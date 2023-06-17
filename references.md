@@ -1,7 +1,3 @@
-# References
 
-* octocat 1 😈# References
+New changes
 
-* octocat 1 😈# References
-
-* octocat 1 😈
